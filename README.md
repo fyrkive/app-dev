@@ -146,5 +146,3 @@ Waiting until you're confident enough can keep you stuck. Sometimes, you have to
 ### Learn More
 
 Check out its page on [MyAnimeList](https://myanimelist.net/anime/20583/Haikyuu).
-
-I used to think that this volleyball anime was overrated but I never expected it to be ==one of the most memorable masterpieces I have laid my eyes on==.
